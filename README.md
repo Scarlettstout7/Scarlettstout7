@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Scarlettstout7
+- 👀 I’m interested in Horses I love them so much there so pretty and there is so many coats and types of them.
+- 🌱 I’m currently learning how to controle my madness and I can hurt you very bad I can punch a punching bag and it will swing I work out a lot for a kid but I will only do it if you are creepy, mean and useing me for stuff.
+- 💞️ I’m looking to make more nice friends because I like lots of nice friends and DEFINITELY NOT MEAN, USEING ME FOR STUFF, BEING CREEPY AND NOT SAFE!
+- 📫 You can find me in roblox and friend me, BUT NO CREEPY STUFF AND I AM VERY STRONG FOR A KID! I WILL UNFRIEND YOU!😡
+- 😄 I am a very nice friend, BUT IF YOU USE ME FOR STUFF THEN WERE NOT FRIENDS ANYMORE AND SAME APPLIES TO BEING CREEPY!😡 only nice friends and safe friends.😊😊😊😊😊
+- 🥳 Fun fact: I have ADHD my Mom says I am special and its like a super power and I have rode a horse before and I loved it so much!
+- 🥰 Love: I do not want to fall in love because when I fall in love I just lose them.😔 this year I had a crush and guess what happened he's moving away at the end of the year.😭
+- 🤪 How I Act: I am very funny too and one thing please do not tickle me because Imight be funny but i hate I mean HATE being tikled!
